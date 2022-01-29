@@ -1,4 +1,4 @@
-Let's master it
+Let's master it all
 This is it!
 
 This course was really helpful. (Name: Harsh Jhunjhunuwala)
